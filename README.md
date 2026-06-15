@@ -83,7 +83,7 @@ Through these projects, I gained practical experience in:
 **Md. Abdullah Anas**
 
 - GitHub: https://github.com/mdAbdullahAnas
-- LinkedIn: https://www.linkedin.com/in/mdabdullahanas
+- LinkedIn:  https://www.linkedin.com/in/md-abdullah-anas-5a4914253/
 
 ---
 
